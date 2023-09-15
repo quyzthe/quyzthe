@@ -6,5 +6,3 @@ Currently, I am engaging in the fields of Hydrology and Hydraulic studies, emplo
 As I embark on this journey, my commitment to continuous growth and learning remains unwavering.
 
 📫 I greatly appreciate your time and consideration. For those who wish to get in touch, I can be reached via email at tqthe02@gmail.com.
-
-#tonyquitegood
